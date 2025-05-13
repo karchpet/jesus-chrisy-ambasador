@@ -1,1 +1,1 @@
-# jesus-chrisy-ambasador
+# jesus-christ-ambasador
